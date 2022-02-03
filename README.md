@@ -1,1 +1,0 @@
-# GAMZE-OZTURK
